@@ -1,1 +1,1 @@
-Welcome to my project！Let's do reserch togather.
+Welcome to my project！Let's do reserch together!
